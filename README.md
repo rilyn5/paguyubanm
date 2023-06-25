@@ -1,2 +1,2 @@
-# paguyubanm
+# PAGUYUBAN M
 Paguyuban M
